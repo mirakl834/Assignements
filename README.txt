@@ -1,0 +1,1 @@
+Assignements from classes.
